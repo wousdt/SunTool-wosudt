@@ -21,7 +21,7 @@ Video tutorial on coin lock issuance：https://youtu.be/Hdx7dLQDldE
 联系我们:https://t.me/wousdt
 Contact Us:https://t.me/wousdt
 
-交流群: https://t.me/suntoolcc
+频道: https://t.me/suntoolcc
 Community Group:
 
 X: https://twitter.com/suntoolcc
